@@ -1,6 +1,6 @@
 # Hey there!👋
 
-My name is Ana Lívia, and i'm an IT student at the Instituto Federal do Ceará (IFCE), currently at the 4th semester in high school.
+My name is Ana Lívia, and i'm an IT student at the Instituto Federal do Ceará (IFCE), currently at the 5th semester in high school.
 
 - 📚 My current hobbies are reading **manga**, **drawing**, and listening to music
 
